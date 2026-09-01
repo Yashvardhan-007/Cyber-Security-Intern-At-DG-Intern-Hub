@@ -1,4 +1,4 @@
 # Cyber-Security-Intern-At-DG-Intern-Hub
 
 
-[Cyber-Offer_Letter.pdf](https://github.com/user-attachments/files/31679191/Cyber-Offer_Letter.pdf)
+<img width="450" height="587" alt="Screenshot 2026-09-01 125431" src="https://github.com/user-attachments/assets/def337a3-547a-446b-9aea-d419a6f7bdb5" />
